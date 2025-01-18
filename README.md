@@ -4,8 +4,6 @@ not very active here
 [they/them](https://pronouns.within.lgbt/they), [she/her](https://pronouns.within.lgbt/she), [he/him](https://pronouns.within.lgbt/he), [it/its](https://pronouns.within.lgbt/it)  
 moderation [@computernewb](https://github.com/computernewb)
 
-inquiries: mailto:aphrodisiac@gmail.com or mailto:mallory@computernewb.com
-
 <!--
 **riko/riko** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
